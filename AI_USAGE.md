@@ -1,1 +1,1 @@
-Gemini, Cloude - only
+Gemini
